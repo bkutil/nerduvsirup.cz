@@ -1,0 +1,3 @@
+# nerduvsirup.cz
+
+Lihuprostý, recesistický.
